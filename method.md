@@ -6,4 +6,4 @@ After the sessme has popped out, add Ground nuts ,Urad dal, Chenna dal and curry
 Then, after Ground nuts ,Urad dal and Chenna dal have become into a color of golden-brown, add washed poha which was kept ready.
 Stir well.
 The poha is now ready eat.
-ENJOY!!
+ENJOY!! 
